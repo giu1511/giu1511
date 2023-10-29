@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @giu1511
+- 👀 I’m interested in pragmatic applications of AI
+- 🌱 I’m currently learning machine learning
+- 💞️ I’m looking to collaborate with brilliantly unconventional people
+- 📫 How to reach me: think of me strongly and I will contact you!
